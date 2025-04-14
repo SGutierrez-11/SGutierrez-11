@@ -68,7 +68,7 @@
 
 ## 🏅 Recognitions
 
-- **Honor Roll | Universidad Icesi** (2020-2 to 2023-2 uninterruptedly)
+- **Honor Roll | Universidad Icesi** (2020-2 to 2025-1 uninterruptedly)
 
 ### 🌍 Languages
 - Spanish (Native)
